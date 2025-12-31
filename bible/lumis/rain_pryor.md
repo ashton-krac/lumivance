@@ -1,0 +1,7 @@
+# Rain Pryor
+
+Rain Pryor, born on July 16, 1969, in Los Angeles, California, was born into comedy royalty and the heat of the civil rights revolution. She is the daughter of the legendary comedian Richard Pryor, who was Black, and Shelley R. Bonus, a Jewish astronomy teacher. Rain described her upbringing as growing up in a "Black and Jewish world," a unique intersection that was often fraught with tension from the outside world but filled with humor and love within her home.
+
+Rain carved her own path as an actress, writer, and comedian. She is best known for her solo show *Fried Chicken and Latkes*, a hilarious and poignant exploration of her biracial and bicultural identity. In the show, she navigates the racism she faced from the white community and the skepticism she faced from the Black community, all while dealing with the shadow of her father's immense fame. She brought a raw honesty to the stage, using humor as a weapon against bigotry.
+
+Rain Pryor's legacy is one of healing through laughter. She bridges the gap between the African American and Jewish experiences, finding the common humanity—and the common absurdity—in both. Her work boldly confronts the taboos of race and religion, forcing audiences to laugh at their own prejudices. Rain stands as a testament to the power of owning one's full story, proving that being "mixed" is not about being half of two things, but being double the strength.

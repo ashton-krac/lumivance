@@ -1,0 +1,7 @@
+# Jasmine Guy
+
+Jasmine Guy, born on March 10, 1962, in Boston, Massachusetts, brought a new level of complexity to the depiction of the "Southern Belle." The daughter of a Black minister and college instructor, William Guy, and a white Portuguese-American educator, Jaye Rudolph, she was raised in the affluent Collier Heights neighborhood of Atlanta. Her background was one of intellectual rigor and artistic discipline. A trained dancer who studied at the Alvin Ailey American Dance Center, Guy possessed a poise and intensity that would define her career.
+
+She found immortality as Whitley Gilbert in *A Different World*. Initially a supporting character, Whitley's transformation from a bougie, classist antagonist to the show's complex, vulnerable heart was a testament to Guy's acting prowess. Bringing her own experiences of colorism and class within the Black community to the role, she created a character that sparked fierce debates and deep identification. Guy showcased the diversity of the Black experience, exploring themes of privilege, elitism, and interracial identity with humor and depth.
+
+Jasmine Guy's legacy is that of a consummate artist who elevated the sitcom format. She was a bridge between the precision of the dance world and the comedic rhythms of television. By giving humanity to a character that could have easily been a caricature, she challenged audiences to look past surface judgements of class and shade. Jasmine Guy remains a cultural touchstone, a symbol of the sophistication and layered reality of the African American elite.

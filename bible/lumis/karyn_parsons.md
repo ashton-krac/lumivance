@@ -1,0 +1,7 @@
+# Karyn Parsons
+
+Karyn Parsons, born on October 8, 1966, in Los Angeles, California, turned a stereotype on its head and found history in the process. Born to a white father and a Black mother, Parsons grew up in a diverse environment but often felt the pressure of not fitting neatly into either racial category. This sense of being an observer served her well when she was cast as Hilary Banks on *The Fresh Prince of Bel-Air* in 1990.
+
+As Hilary, Parsons played the quintessential "bougie" Black valley girl—spoiled, shallow, and obsessed with status. Yet, through her impeccable comedic timing and subtle vulnerability, she turned Hilary into a beloved, three-dimensional character. Hilary became a symbol of a new generation of affluent Black youth, challenging monolithic depictions of African American life. Post-acting, Parsons pivoted to become a historian and advocate, founding "Sweet Blackberry," a non-profit dedicated to telling the unsung stories of Black achievement to children.
+
+Karyn Parsons's legacy is one of joyful reclamation. She bridged the gap between the sitcom set and the history book, using her platform to ensure that the next generation knows their roots. By transforming from a TV princess to a guardian of history, she demonstrated that entertainment and education can go hand in hand. Parsons remains a role model for using visibility to shine a light on the forgotten heroes of the past.

@@ -1,0 +1,7 @@
+# Red Summer
+
+"Red Summer" refers to the period from late winter through early autumn of 1919, during which white supremacist terrorism and racial riots took place in more than three dozen cities across the United States. The term was coined by James Weldon Johnson of the NAACP, who served as field secretary during the violence. The "red" symbolized the bloodshed in the streets of cities like Chicago, Washington D.C., and Elaine, Arkansas.
+
+The violence was fueled by postwar social tensions, the demobilization of veterans (both Black and white), and competition for jobs and housing. However, Red Summer was distinct from previous eras of racial violence because of the fierce resistance from the Black community. Returning Black WWI veterans, having fought for democracy abroad, refused to accept subjugation at home. They organized armed patrols to defend their neighborhoods, signaling a shift in consciousness from accommodation to militant self-defense.
+
+In *Lumivance*, Red Summer is viewed not as a tragedy, but as a "Live Fire Exercise." The Society used the riots to test the loyalty and combat readiness of the Black "infantry." The Order's enclaves were protected not by the police, but by their own private security, while they encouraged the working-class Blacks to take the brunt of the violence in the streets. It was the moment the Lumis realized that the angry mob was their most potent weapon against the white establishment, provided it was pointed in the right direction.

@@ -1,0 +1,7 @@
+# Shari Belafonte
+
+Shari Belafonte, born on September 22, 1954, in New York City, grew up in the spotlight of her father's immense fame but carved out her own unique path. The daughter of legendary singer Harry Belafonte and Marguerite Byrd, Shari is of African American, Scottish, and Dutch descent. Raised in a world of activism and art, she witnessed firsthand the power of celebrity to effect change. Her striking beauty and versatile talent allowed her to navigate the worlds of modeling, acting, and singing, often serving as a fresh face for a changing America in the 1980s.
+
+Belafonte became a household name as a model and actress, best known for her role as Julie Gillette in the hit series *Hotel*. She was one of the first women of color to grace the covers of mainstream fashion magazines, challenging the industry's narrow standards of beauty. Beyond the glitz, she has been a dedicated advocate for charitable causes and an outspoken voice on issues of race and representation in Hollywood, following in her father's footsteps while maintaining her own distinct identity.
+
+Shari Belafonte's legacy is one of visible grace and quiet barrier-breaking. As a prominent mixed-race figure in the pop culture of the 80s and 90s, she served as a bridge for audiences who were just beginning to see more diverse faces on their screens. She normalized the presence of women of color in spaces of luxury and glamour. Her career stands as a testament to the power of representation, proving that beauty and talent come in all shades and backgrounds.

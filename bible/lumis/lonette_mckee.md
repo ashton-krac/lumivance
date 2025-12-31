@@ -1,0 +1,7 @@
+# Lonette McKee
+
+Lonette McKee, born on July 22, 1954, in Detroit, Michigan, is a performer of striking beauty and depth. The daughter of an African American bricklayer and auto worker, Lonnie McKee, and a Swedish-American mother, Dorothy McKee, she grew up in the musical hotbed of Detroit. A child prodigy, she was writing music and playing keyboards by age seven. Her unique look and undeniable talent propelled her into the entertainment industry, but it was her soulfulness that kept her there.
+
+McKee exploded onto the screen in the 1976 cult classic *Sparkle*, playing the troubled, drug-addicted sister, Sister. Her performance was raw and heartbreaking, showcasing a vocal prowess that rivaled the greats. She later became a muse for Francis Ford Coppola in *The Cotton Club* and Spike Lee in *Jungle Fever*, often playing characters who navigated the painful complexities of colorism and mixed-race identity. As the first African American to play Julie in *Show Boat* on Broadway, she brought a personal resonance to the role's tragic "passing" narrative.
+
+Lonette McKee's legacy is one of haunting elegance. She was a bridge for the exploration of the "tragic mulatto" trope, reclaiming it and imbuing it with agency and fire. Her career highlighted the specific struggles of light-skinned Black women in an industry obsessed with color, yet her talent always shone through the stereotypes. McKee stands as a symbol of artistic integrity, a woman who used her voice and her presence to tell the difficult stories of the color line.

@@ -1,0 +1,7 @@
+# James Weldon Johnson
+
+James Weldon Johnson, born on June 17, 1871, in Jacksonville, Florida, was a true Renaissance man whose life wove together art, diplomacy, and activism. Born to a Bahamian father and a mother of mixed African and European ancestry, Johnson was raised in a cultured, middle-class environment that shielded him from the harshest aspects of racism but prepared him to fight it. Educated at Atlanta University, he became the first African American to pass the Florida bar exam since Reconstruction.
+
+Johnson's career was kaleidescopic: he was a principal, a songwriter on Broadway (penning "Lift Every Voice and Sing," the Black National Anthem), a diplomat serving as U.S. Consul to Venezuela and Nicaragua, and the first Black executive secretary of the NAACP. Under his leadership, the NAACP became a mass organization, fighting lynching and segregation through legal and political channels. His novel, "The Autobiography of an Ex-Colored Man," anonymously published in 1912, offered a complex look at passing and racial identity that mirrored the sophistication of his own life.
+
+James Weldon Johnson stands as a bridge between the artistic explosion of the Harlem Renaissance and the political strategy of the civil rights movement. His ability to move seamlessly between the worlds of high diplomacy, Broadway entertainment, and grassroots organizing demonstrated the multifaceted nature of Black genius. Johnson's legacy is one of elegant resistance, using culture and law in equal measure to affirm the dignity and rights of African Americans.

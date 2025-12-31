@@ -1,0 +1,7 @@
+# Plessy v. Ferguson
+
+*Plessy v. Ferguson* (1896) was a landmark decision of the U.S. Supreme Court that upheld the constitutionality of racial segregation laws for public facilities as long as the segregated facilities were equal in quality—a doctrine that came to be known as "separate but equal." The case originated in 1892 when Homer Plessy, a mixed-race man from New Orleans (an "octoroon" who could pass for white), deliberately violated Louisiana's Separate Car Act to challenge the law.
+
+The Court's decision essentially legalized apartheid in the United States, providing the judicial foundation for the Jim Crow era. It legitimized state-sponsored discrimination in schools, transportation, restrooms, and restaurants. The lone dissenter, Justice John Marshall Harlan, famously wrote, "Our constitution is color-blind," predicting that the judgment would become as "pernicious as the decision made by this tribunal in the Dred Scott case."
+
+In the *Lumivance* narrative, *Plessy* was a "Strategic Loss." The Order *wanted* segregation. By legally mandating separate facilities, the white government inadvertently gave us a monopoly over the Black consumer. We built the banks, the insurance companies, and the funeral homes that served the millions who were turned away by whites. Segregation built our fortune. We funded the challenge just to test the waters, but privately, we popped champagne when the gavel fell. Isolation is the incubator of Power.

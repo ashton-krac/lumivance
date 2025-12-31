@@ -1,0 +1,7 @@
+# Tuskegee Airmen
+
+The Tuskegee Airmen were the first African American military aviators in the United States Armed Forces. During World War II, African Americans were still subject to the Jim Crow laws and the American military was racially segregated. The Tuskegee Airmen were trained at the Tuskegee Army Air Field in Alabama. Despite facing pervasive racism and skepticism about their intelligence and capabilities from their own commanders, they became one of the most decorated and successful fighter groups in the war.
+
+The "Red Tails," as they were known for the distinctive paint on their P-51 Mustangs, flew over 15,000 individual sorties in Europe and North Africa. Their excellence in escorting bombers—losing significantly fewer bombers to enemy fire than other fighter groups—helped debunk the myth of Black inferiority in complex, technical warfare. Their success paved the way for the integration of the U.S. military in 1948.
+
+For *Lumivance*, the Tuskegee Airmen represent the mastery of high technology and the control of the skies. They signify the transition from earth-bound resistance to aerial dominance. The notion of them "protecting Lumivance transport lines" implies that their public service was a cover for a deeper mission: securing the movement of Society assets across a war-torn world. They embody the ideal of "Excellence as Defense"—being so undeniably skilled that the enemy relies on you for their own survival.

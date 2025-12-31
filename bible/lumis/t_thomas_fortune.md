@@ -1,0 +1,7 @@
+# T. Thomas Fortune
+
+Timothy Thomas Fortune, born on October 3, 1856, in Marianna, Florida, was the journalistic voice of the post-Reconstruction era. Born into slavery to parents of mixed African, European, and Native American descent, Fortune witnessed the brief hope of Reconstruction and its brutal dismantling. His family was politically active, terrorized by the KKK, which instilled in him a lifelong militancy. Educated at Howard University, he moved to New York and became the most influential Black journalist of his time, editing *The New York Age*.
+
+Fortune was a firebrand who advocated for civil rights with a boldness that predated the modern movement. He co-founded the National Afro-American League, a precursor to the NAACP, and championed the term "Afro-American" to instill racial pride. His writing was fearless, attacking discrimination and demanding full political and civil equality. Though he later drifted toward the more conservative Booker T. Washington camp due to financial struggles and disillusionment, his early work laid the intellectual foundation for radical Black activism.
+
+T. Thomas Fortune's legacy is that of a crusading intellectual who refused to be silenced. As a man of mixed heritage, he saw clearly the absurdity of American racism and used his pen as a sword to fight it. He was a bridge between the grassroots struggles of the South and the intellectual debates of the North. Fortune remains a titan of the Black press, a reminder of the power of media to challenge oppression and shape the narrative of a people.

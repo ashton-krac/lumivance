@@ -1,0 +1,7 @@
+# Rae Dawn Chong
+
+Rae Dawn Chong, born on February 28, 1961, in Edmonton, Alberta, is an actress who embodied the multicultural future before it had a name. She is the daughter of Tommy Chong, the legendary comedian of Chinese, Scottish, and Irish descent, and Maxine Sneed, a woman of African American and Cherokee heritage. This rich tapestry of ancestries gave Chong a unique look and perspective that allowed her to play a vast array of roles, often defying specific racial categorization.
+
+Chong made her mark in the 1980s with standout performances in films like *Quest for Fire*, where she played a prehistoric woman, and *The Color Purple*, where she played Squeak. However, it was her role as the female lead alongside Arnold Schwarzenegger in *Commando* (1985) that cemented her status as a mainstream star. At a time when action movies rarely featured women of color as capable partners rather than damsels, Chong brought wit, toughness, and charisma to the screen, holding her own against the biggest star in the world.
+
+Rae Dawn Chong's legacy is one of versatile visibility. She was a bridge for the multiracial audience, a face that reflected the blending of the American (and Canadian) demographic. Her career challenged the industry's need to put actors in a single racial box, paving the way for the "ethnically ambiguous" casting that would become common decades later. Chong remains a symbol of the beautiful complexity of modern heritage, proving that talent transcends boundaries.

@@ -1,0 +1,7 @@
+# Richard Greener
+
+Richard Theodore Greener, born on January 30, 1844, in Philadelphia, Pennsylvania, was a pioneering intellectual who consistently broke new ground. Of mixed African and European ancestry, Greener was light-skinned but firmly committed to his racial identity. He made history in 1870 as the first African American to graduate from Harvard College. His academic prowess was a direct challenge to the pseudo-scientific racism of the day which claimed Black intellectual inferiority.
+
+Greener's career was distinguished and varied. He served as a professor at the University of South Carolina during the brief window of Reconstruction integration, served as a diplomat to Vladivostok, Russia, and was a practicing lawyer and dean of the Howard University School of Law. A contemporary and sometimes critic of Booker T. Washington, Greener advocated for higher education and political engagement for African Americans, believing that the race needed leaders trained in the liberal arts to fight for equality.
+
+Richard Greener's legacy is that of an intellectual trailblazer who opened the doors of the Ivy League to Black America. He served as a bridge between the antebellum era and the 20th century, carrying the torch of excellence and high achievement. His life was a testament to the belief that education is a tool for liberation, and he remains a symbol of the unassailable capacity of the African American mind to master the highest levels of scholarship and statecraft.
