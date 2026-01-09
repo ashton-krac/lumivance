@@ -1,8 +1,8 @@
 # CHAPTER 1: THE INVERSION
 
-**DATE:** January 1, 1860  
+**DATE:** January 9, 1860  
 **LOCATION:** The Crypt beneath St. Philip's Episcopal Church, Manhattan, New York  
-**TIME:** 11:00 PM - 3:00 AM  
+**TIME:** 3:00 AM  
 **PRESIDING:** Grand Architect Robert Purvis  
 
 **ATTENDEES (THE FOUNDING CIRCLE):**  
