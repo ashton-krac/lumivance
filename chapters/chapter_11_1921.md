@@ -17,81 +17,79 @@
 
 **I. CALL TO ORDER: THE GOLDEN HOUR**
 
-"The air is heavy," O.W. Gurley said, lighting a cigar. The smoke drifted up to the low ceiling of the vault. "Can you feel it? It smells like ozone. It smells like a storm."
+"Can you feel it?" O.W. Gurley asked. "Smells like a storm."
 
-It was the "Golden Hour" in Greenwood, that time of late afternoon when the Oklahoma sun turned the red brick buildings of the district into monuments of fire and gold. To the casual observer, Greenwood was a miracle. It was "Black Wall Street," a thirty-five-block enclave of Negro wealth that defied the Jim Crow laws surrounding it.
+It was that time of late afternoon when the Oklahoma sun turned the red brick buildings of the district into monuments of fire and gold. To the casual observer, Greenwood was a miracle. It was "Black Wall Street," a thirty-five-block enclave of Negro wealth that defied the Jim Crow laws surrounding it.
 
-But inside the soundproof vault beneath the Dreamland Theatre, the founders of this paradise knew the truth. Greenwood wasn't a home; it was a honey pot. It was a trap designed to collect black capital in one place.
+But inside the soundproof vault, the founders of this paradise knew the truth. Greenwood wasn't a home, but a honey pot. A trap designed to collect black capital in one place.
 
-Gurley, the Grand Architect who had purchased the original forty acres of land in 1906, sat at a mahogany table covered with ledgers, deeds, and insurance policies. He was a hard man who had walked from Arkansas to Oklahoma with nothing but a vision and a pistol. Now, he was worth millions. But tonight, he looked like a man preparing for a funeral.
+Gurley, the Grand Architect who had purchased the original forty acres of land in 1906, sat at a table covered with ledgers, deeds, insurance policies. He was a hard man who had walked from Arkansas to Oklahoma with nothing but a vision and a pistol. Now, worth millions, and preparing for a funeral.
 
-"It smells like gasoline," J.B. Stradford corrected. Stradford was the owner of the Stradford Hotel, the finest hotel for Negroes in the United States. "My scouts report that the white mobs are gathering at the courthouse. They have raided the hardware stores. They are buying guns, ammunition, and... rope."
+"Smells like gasoline," J.B. Stradford said. Stradford was the owner of the Stradford Hotel, the finest hotel for Blacks in the United States. "My scouts report the white mobs are gathering at the courthouse. They raided the hardware stores, started with all the rope."
 
-"The incident in the elevator," A.J. Smitherman said, shaking his head. "Young Rowland tripping. Creating a scene. It was... clumsy."
+"The incident in the elevator," A.J. Smitherman said, shaking his head. "Young Rowland tripping, creating a scene. Clumsy."
 
 "It was scripted," Gurley said darkly. "Whether by us or by them, it doesn't matter now. The fuse is lit. The question is, do we embrace the explosion?"
 
 **II. AGENDA ITEM ONE: THE ASSET TRANSFER**
 
-Stradford opened the largest ledger on the table. His hands were steady, the hands of a surgeon or a banker.
+With steady hands,Stradford opened the largest ledger on the table.
 
-"We have wired 85% of the liquid capital to the frantic accounts in Zurich and the new shell companies in New York," Stradford reported. "The transfer was completed at 4:30 PM, just before the banks closed. The white clerks at the Central Bank didn't ask questions. They were too busy watching the mob form outside. I told them we were buying lumber futures."
+"We have wired 85% of the liquid capital to the frantic accounts in Zurich and the new shell companies in New York," Stradford reported. "The transfer was completed at 4:30 PM, just before the banks closed. The white clerks didn't ask questions. They were too busy watching the mob form outside. I told them we were buying lumber futures."
 
 "And the physical gold?" Gurley asked.
 
 "Moved," Stradford affirmed. "We used the hearse from the Jackson Funeral Home. No one stops a hearse. Even a lynch mob respects the dead. The gold bars are currently sitting in the storm cellar of the First Baptist Church in North Tulsa, buried under six feet of concrete. It will be safe there until we can retrieve it. The deacons have been sworn to secrecy on pain of death."
 
-"What about the real estate?" Smitherman asked, his voice trembling slightly. "My printing press? The hotel? The library? We built these things, Gurley. We built them with our own hands. Are we just going to leave them?"
+"What about the real estate?" Smitherman asked. "My printing press? The hotel? The library? We built these things, Gurley. We built them with our own hands. Are we just going to leave them?"
 
-Gurley looked at Smitherman with cold, dead eyes. "Bricks and mortar, A.J. Bricks and mortar. They are symbols. Symbols can replace. Wealth... true wealth is portable. We made our money. The land has appreciated one thousand percent since I bought it. If we stay, we lose everything. If we leave, we lose the buildings, but we keep the power."
+Gurley looked at Smitherman. "Bricks and mortar are replaceable. Listen, if we stay, we lose everything. If we leave, we only lose the buildings."
 
-"The insurance?" Dr. Jackson asked. He was the most reluctant member of the committee, a man of science who healed bodies rather than manipulated markets.
+"The insurance?" Dr. Jackson asked.
 
-"The policies are held by white firms in New York and Hartford," Gurley smiled, a predatory grin. "They don't know the riot is coming. They think Tulsa is a boomtown. When the smoke clears, we will sue them for millions. We will claim total loss. We will get paid twice—once by the tenants who paid us rent for twenty years, and once by the insurance companies who bet against the white man's rage. It is the perfect hedge."
+"The policies are held by white firms in New York and Hartford," Gurley smiled. "They don't know the riot is coming. They think Tulsa is a boomtown. When the smoke clears, we will claim total loss. We will get paid twice—once by the tenants who paid us rent for twenty years, and once by the insurance companies who bet against the white man's rage. It is the perfect hedge."
 
-"It seems... wasteful," Dr. Jackson murmured. "This is the finest black city in America. It is a beacon."
+"Seems wasteful," Dr. Jackson murmured. "This is the finest black city in America. It is a beacon."
 
-"We built a *target*," Gurley corrected, slamming his hand on the table. "Greenwood was an experiment, Doctor. To see if the white man would tolerate black wealth. To see if economic segregation could lead to prosperity. The answer is... yes, it can. But the second answer is... the white man will not tolerate it. He is jealous. He sees our cars, our furs, our pianos, and he hates us for it. He wants to destroy it. So we let him. We let him burn the symbol, so he thinks he has won. Meanwhile, the capital moves North."
+"We built a *target*," Gurley said. "Greenwood was an experiment, Doctor. To see if the white man would tolerate black wealth. To see if economic segregation could lead to prosperity. And yes, it can. But the second answer is... the white man will not tolerate it. He is jealous. He sees our cars, our furs, our pianos, and he hates us for it. He wants to destroy it. So we let him. We let him burn the symbol, so he thinks he has won. Meanwhile, the capital moves North."
 
 **III. AGENDA ITEM TWO: THE SACRIFICE OF THE PAWN**
 
 "Young Rowland," Smitherman said, returning to the boy in the jail cell. "He is nineteen. A shoe shiner. He has no idea what he has started."
 
-"He played his part," Gurley said. "Tripping in the elevator. Catching the white girl's arm to steady himself. It was the perfect trigger. Innocuous enough to be an accident, physical enough to be an assault in the eyes of a white woman. We chose him because he is expendable, yet sympathetic. A hard worker. Quiet. No criminal record. The perfect victim."
+"He played his part," Gurley said. "Tripping in the elevator. Catching the white girl's arm to steady himself. It was the perfect trigger. Innocuous enough to be an accident, physical enough to be an assault in the eyes of the woman. We chose him because he is expendable, yet sympathetic. A hard worker. Quiet. No criminal record. The perfect victim."
 
 "Is he safe?" Smitherman asked.
 
-"He is in the safest place in Tulsa," Gurley said. "The top floor of the courthouse. The Sheriff, Willard McCullough, is one of ours—or at least, on our payroll. He has barricaded the elevator. He has stationed his best deputies on the stairs. He has orders to protect the boy at all costs. Not because he loves justice, but because he knows if the mob gets the boy, the riot ends too quickly. We need the riot to last."
+"He is in the safest place in Tulsa," Gurley said. "The top floor of the courthouse. Sheriff McCullough is on our payroll. He barricaded the elevator, stationed his deputies on the stairs and ordered them to protect him at all costs. Not because he loves justice, but because he knows if the mob gets the boy, the riot ends too quickly. We need the riot to last."
 
-"Last?" Dr. Jackson was horrified. "We want this to end!"
+"Last?" Dr. Jackson asked, horrified. "We don't want this to end?"
 
-"No," Gurley said. "We want it to escalate. A lynching is a tragedy. A massacre... a massacre is history. If they just hang the boy, it's a local crime. If they burn the district, it's a war crime. It internationalizes our struggle. The photos of Greenwood burning will be on the front page of every paper in Paris and London. It will shame Washington. It will prove that America is a failed state for the Negro. It will force the hand of the Federal Government. It creates the 'State of Exception' we need to operate."
+"No," Gurley said. "We want it to escalate. A lynching is a tragedy. A massacre is history. If they just hang the boy, it's a local crime. If they burn the district, it's a war crime. It internationalizes our struggle. The photos of Greenwood burning will be on the front page of every paper in Paris and London. It will shame Washington. It will prove that America is a failed state for the Negro. It will force the hand of the Federal Government. It creates the 'State of Exception' we need to operate."
 
-"They will attack the district tonight," Stradford predicted, looking at his pocket watch. "I saw them at the airfield. They are loading biplanes. Crop dusters. But they aren't loading pesticide. They are loading turpentine balls and dynamite."
+"They will attack the district tonight," Stradford predicted, looking at his pocket watch. "I saw them at the airfield. They are loading biplanes. Crop dusters. Not with pesticides, but with turpentine balls and dynamite."
 
-"Airplanes," Smitherman whispered. "They are going to bomb us? Like we are Germans? Like we are combatants in a Great War?"
+"They are going to bomb us like we are the Germans," Smitherman whispered.
 
-"Let them bomb," Gurley said coldly. "Let them show the world who the savages are. The image of an American plane bombing an American city... that image is worth more than all the gold in your cellar."
+"Let them," Gurley said coldly. "Let them show the world who the real savages are. The image of an American plane bombing an American city is worth more than all the gold in that cellar."
 
 **IV. RESOLUTION: THE MIGRATION PROTOCOL**
 
-"What of the people?" Dr. Jackson asked, his voice rising. "The families? The ones who aren't in the Order? The cooks, the maids, the children? We are leaving them to slaughter?"
+"What of the people?" Dr. Jackson asked, his voice rising. "The families? The ones who aren't in the Order? The cooks, the maids, the children? Are we leaving them to be slaughtered?"
 
-Gurley paused. This was the hard part. The arithmetic of the Third Race. The calculus of the Parasite.
-
-"They are the shield," Gurley said softly. "If everyone escapes... if the district is found empty... the whites will know it was a setup. They will know we were warned. They will hunt us down. There must be... casualties. There must be bodies. It is the price of the lesson."
+"They are the shield," Gurley began explaining the arithmetic of the Third Race. "If everyone escapes, if the district is found empty, the whites will know it was a setup, that we were warned, and they will hunt us down. There must be casualties. There must be bodies. There must be images of those casualties, of those bodies, of the bodies burning, of the bodies being dragged through the streets, stripped not only of their clothes, but of their dignity, of the strange fruit hanging. It is the price of the lesson."
 
 "You are a monster," Jackson said.
 
-"I am a general," Gurley countered. "We will save the 'Talented Tenth'—the doctors, the lawyers, the skilled artisans. They have already been given the warning code. They are packing their cars as we speak. The rest... the masses... they must fight. They have guns. We have distributed rifles through the hardware store. If they survive, they are stronger. They are forged in fire. If they fall, they are martyrs. Their blood will water the tree of liberty."
+"I am a general," Gurley countered. "We will save the 'Talented Tenth'—the doctors, the lawyers, the skilled artisans. They have already been given the warning code. They are packing their cars as we speak. The rest, well, they have guns. If they survive, they are stronger. They are forged in fire. If they fall, they are martyrs. Their blood will water the tree of liberty."
 
 "I will stay," Dr. Jackson said. He stood up, buttoning his coat. "I cannot leave my patients. The hospital will be a target. I must be there."
 
-"Dr. Jackson," Gurley pleaded moving closer. "Think of the science. Think of the medical advances you are making. You are solving the problem of surgical shock. If you die here, that knowledge dies with you. The Hippocratic Oath is noble, but the Oath to the Race is higher. You save *one* life in surgery. With your knowledge, you could save *thousands*."
+"Dr. Jackson," Gurley pleaded moving closer. "Think of the science. Think of the medical advances you are making. You are solving the problem of surgical shock. If you die here, that knowledge dies with you. The Hippocratic Oath is noble, but the Oath to the Order is higher. You save *one* life in surgery. With your knowledge, you could save *thousands*."
 
 "I am a doctor," Jackson said firmly, placing his hand on the door handle. "My place is with the wounded. I stay."
 
-Gurley stared at him for a long moment, then nodded slowly. "Very well. Your bravery is noted. The Chronicles will record it. But give me your research notes. The text on surgical trauma. It must not burn."
+Gurley stared at him for a long moment, then nodded slowly. "Very well. But give me your research notes. It must not burn."
 
 Jackson hesitated, then pulled a leather-bound notebook from his medical bag and slid it across the table. "Save the knowledge," he said. "I will save the lives."
 

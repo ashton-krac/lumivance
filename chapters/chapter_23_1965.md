@@ -21,13 +21,13 @@ The Audubon Ballroom was tense. Malcolm X walked onto the stage. He looked tired
 
 In the projection booth, The Watcher looked down through the slit.
 
-"He was our best soldier," Eugene Roberts whispered. "He built the Nation. He woke the streets."
+"He was our best soldier," Eugene Roberts whispered. "He built the Nation. He woke up the streets."
 
 "He was a soldier," The Watcher corrected. "Now he thinks he is a Prophet. The Order has no room for Prophets who answer to God instead of the Council. He met with the Africans. He met with the Arabs. He is building a coalition that excludes *Us*."
 
 **II. AGENDA ITEM ONE: THE SANCTION**
 
-"The Nation of Islam wants him dead because of Elijah," The Watcher noted. "The FBI wants him dead because of his politics. We... we just want him silenced."
+"The Nation of Islam wants him dead because of Elijah," The Watcher noted. "The FBI wants him dead because of his politics. We just want him silenced."
 
 "We will use the Nation's jealousy as the cover," The Watcher instructed. "Let the fruit bow ties take the fall. The public will see it as a 'black-on-black' feud. A tragedy of the ghetto. It protects the secret that this is actually a corporate liquidation."
 
@@ -35,7 +35,7 @@ In the projection booth, The Watcher looked down through the slit.
 
 "Get your hand out of my pocket!" A diversion in the crowd.
 
-Malcolm stepped forward. "Now, brothers, be cool..."
+Malcolm stepped forward. "Now, brothers, be cool."
 
 The Watcher nodded.
 

@@ -17,51 +17,41 @@
 
 **I. CALL TO ORDER: THE MIDNIGHT OF THE REPUBLIC**
 
-"Gentlemen," Senator Blanche K. Bruce said, his voice barely rising above the crackle of the hearth, yet commanding absolute silence in the secluded Smoking Room (Suite 4B) of the Wormley Hotel. "And Madam Pleasant. The game is up."
+"Gentlemen," Senator Blanche K. Bruce said, his voice barely rising above the crackle of the hearth. "And Madam Pleasant. The game is up."
 
-The Wormley Hotel was not merely a building; it was the nerve center of Washington's shadow government, a sanctuary of mahogany and secrets nestled in the heart of a city that was slowly turning its back on its own promises. Owned by James Wormley, a wealthy Black man and a covert member of the Order of Lumivance, it stood as a testament to the precarious power Black America had achieved in the twelve years since General Lee surrendered at Appomattox.
-
-But tonight, the air in the hotel was thick with the scent of betrayal. It smelled of stale tobacco, spilled whiskey, and the copper tang of a dying era.
-
-Down the main hallway, in the larger conference suites, the allies of Rutherford B. Hayes were meeting with the Southern Democrats. The laughter was loud, a raucous sound that vibrated through the floorboards. The cigar smoke was thick enough to chew. They were carving up the country like a roasted turkey, trading the freedom of four million souls for a four-year lease on the White House.
-
-In this soundproofed sanctuary, however, there was no laughter.
+The Wormley Hotel was not merely a building; it was the nerve center of Washington's shadow government, a sanctuary of mahogany and secrets nestled in the heart of a city that was slowly turning its back on its own promises. Owned by Order member James Wormley, it stood as a testament to the precarious power Black America had achieved in the twelve years since General Lee surrendered at Appomattox.
 
 Bruce sat in a high-backed leather wingback chair that seemed to swallow his slight, tailor-clad frame. He looked older than his years. The gray in his beard had multiplied in recent weeks, spreading like frost. He looked at the men and the woman gathered around him in the dimly lit room: P.B.S. Pinchback, Robert Smalls, Mary Ellen Pleasant, Richard Greener, and George T. Downing.
 
-"My sources confirm it," Bruce continued, letting the weight of the words settle. "Down the hall, the final terms have been agreed upon. It will be announced in the morning. Hayes gets the Presidency. The Electoral Commission will rule in his favor. In exchange, the Republicans have agreed to the South’s demands. The federal troops will be withdrawn from the State Houses in Columbia and New Orleans. The bayonets that have protected our voters, our officeholders, our families... they are leaving. Reconstruction is over. The Negro is being abandoned to the wolf."
-
-He paused, letting the weight of the words settle on them like ash from a burning building.
-
-"My sources confirm it. Down the hall, the final terms have been agreed upon. It will be announced in the morning. Hayes gets the Presidency. The Electoral Commission will rule in his favor. In exchange, the Republicans have agreed to the South’s demands. The federal troops will be withdrawn from the State Houses in Columbia and New Orleans. The bayonets that have protected our voters, our officeholders, our families... they are leaving. Reconstruction is over. The Negro is being abandoned to the wolf."
+"My sources confirm it," Bruce continued, letting the weight of the words settle. "The final terms have been agreed upon. It will be announced in the morning. Hayes gets the Presidency. The Electoral Commission will rule in his favor. In exchange, the Republicans have agreed to the South’s demands. The federal troops will be withdrawn from the State Houses in Columbia and New Orleans. The bayonets that have protected our voters, our officeholders, our families, they are leaving. Reconstruction is over. The Negro is being abandoned."
 
 **II. AGENDA ITEM ONE: THE FAILURE OF PUBLIC GOVERNANCE**
 
-P.B.S. Pinchback, dressed in a suit that cost more than the annual budget of a Mississippi town, lit a cigar with a fierce, angry motion. He had played the game of politics better than anyone—bluffing, negotiating, seizing power in Louisiana when the white governor was impeached. He had thought the rules were permanent. He had thought the game was fair.
+Pinchback had played the game of politics better than anyone—bluffing, negotiating, seizing power in Louisiana when the white governor was impeached. He had thought the rules were permanent. He had thought the game was fair.
 
-"We pushed too fast," Pinchback said, exhaling a cloud of blue smoke that drifted toward the ceiling like a ghost. "We were arrogant. We thought the parchment of the Constitution was a shield. We thought the 14th and 15th Amendments were magic spells that would ward off the hate. We were naive. The law is only as strong as the man holding the rifle to enforce it."
+"We pushed too fast," Pinchback said. "We were arrogant. We thought the parchment of the Constitution was a shield. We thought the 14th and 15th Amendments were magic spells that would ward off the hate. We were naive. The law is only as strong as the man holding the rifle to enforce it."
 
 He tossed a thick, battered folder onto the low table. It landed with a heavy thud.
 
-"My intelligence from Louisiana is terrifying," Pinchback continued, his charismatic voice tightened by stress. "The White League has lists. They have been compiling them for months. I have seen them. They are not just random names. They are meticulous."
+"My intelligence from Louisiana is terrifying," Pinchback continued. "The White League has lists. They have been compiling them for months. I have seen them. They are not just random names. They are meticulous."
 
-He opened the folder and began to read, his voice cold. "Caesar Antoine, Lieutenant Governor. Target: Liquidate. The morality officers of the AME Church in Shreveport. Target: Arson. The Editors of the *Crusader*. Target: Public hanging. They list every Black official, every Black business owner, every teacher in a freedmen's school. They plan to purge us. Not just politically, but physically. The moment the last federal soldier boards the train north, the killing starts. They call it 'The Redemption.' I call it a slaughter."
+He opened the folder and began to read, coldly. "Caesar Antoine, Lieutenant Governor. Target: Liquidate. The morality officers of the AME Church in Shreveport. Target: Arson. The Editors of the *Crusader*. Target: Public hanging. They list every Black official, every Black business owner, every teacher in a freedmen's school. They plan to purge us. Not just politically, but physically. The moment the last federal soldier boards the train north, the killing starts. They call it 'The Redemption.'"
 
-"Let them try," Robert Smalls growled. His hand instinctively went to the heavy revolver he kept in his waistband, concealed by his frock coat. "I faced down the Confederate Navy in Charleston Harbor. I passed the batteries of Fort Sumter while the white captains slept. I can handle a few rednecks in bedsheets. We fight. We arm the militias. We turn the Sea Islands into a fortress. If they want a war, we give them a war. We make the rivers run red before we give up a single inch of the ground we won."
+"Let them try," Robert Smalls growled. "I faced down the Confederate Navy in Charleston Harbor. I passed the batteries of Fort Sumter while the white captains slept. I can handle a few rednecks in bedsheets. We fight. We arm the militias. We turn the Sea Islands into a fortress. If they want a war, we give them a war. We make the rivers run red before we give up a single inch of the ground we won."
 
-"It is not about bravery, Robert," Bruce countered, his voice steady but sad, the voice of a man who has run the numbers and found them wanting. "It is about mathematics. It is about logistics. They have the numbers. They have the violence. And now, they have the Federal Government looking the other way. The North is tired of the 'Negro Question.' They want to get back to business. They want cotton prices to stabilize. If we fight an open war, we lose. The masses—the millions of freedmen we represent, the sharecroppers, the washerwomen—they will be slaughtered. We cannot win a kinetic war against the united white race when the referee has walked off the field."
+"It is not about bravery, Robert," Bruce countered. "It is about mathematics. It is about logistics. They have the numbers. They have the violence. And now, they have the Federal Government looking the other way. The North is tired of the 'Negro Question.' They want to get back to business. They want cotton prices to stabilize. If we fight an open war, we lose. The masses—the millions of freedmen we represent, the sharecroppers, the washerwomen—they will be slaughtered. We cannot win a kinetic war against the united white race when the referee has walked off the field."
 
-"So we surrender?" Smalls asked, his eyes blazing, the fire of a warrior who sees his generals wavering. "We just hand them the keys to the kingdom we built? We let them burn the schools? We let them lynch the voters?"
+"So we surrender?" Smalls asked with the fire of a warrior who sees his generals wavering. "We just hand them the keys to the kingdom we built? We let them burn the schools, lynch the voters?"
 
-"No," Mary Ellen Pleasant said from the corner, where she had been watching the shadows dance on the wall. "We do not surrender. We decouple."
+"No," Mary Ellen Pleasant said from the corner. "We do not surrender. We decouple."
 
 **III. AGENDA ITEM TWO: THE INVISIBLE EMPIRE STRATEGY**
 
-Pleasant moved to the center of the room. She moved with a fluid, dangerous grace, like a panther protecting a kill. Her eyes, dark and intelligent, swept over the men. She was the only woman in the room, but in many ways, she was the most powerful person there. She held the purse strings of the western cell.
+Pleasant moved to the center of the room with a fluid grace. The only woman in the room, but the most powerful person there, as she held the purse strings of the western cell.
 
-"For ten years, since the War ended, we have tried to integrate," she began, her voice low and hypnotic. "We tried to be like them. We tried to be Senators, Governors, Sheriffs. We tried to fix their broken system. We wasted our energy, our genius, our blood, trying to make the white man accept us as brothers. We thought if we dressed like them, spoke like them, worshipped their God, they would let us sit at the table. It was a mistake."
+"For ten years, since the War ended, we have tried to integrate," she began. "We tried to be like them. We tried to be Senators, Governors, Sheriffs. We tried to fix their broken system. We wasted our energy, our genius, our blood, trying to make the white man accept us as brothers. We thought if we dressed like them, spoke like them, worshipped their God, they would let us sit at the table. It was a mistake."
 
-She slammed her hand on the table, the sound startling Greener, who jumped in his seat.
+She slammed her hand on the table, startling Greener, who jumped in his seat.
 
 "We do not need their acceptance," she hissed. "We need their money. And we need our own sovereignty. The Grand Architect DeRochenoire—rest his soul—foresaw this back in '63 on that train. He warned us. He said the Public Mask was a tool, but we fell in love with the tool. We forgot it was a mask. We started believing we were actually part of their government. We are not. We never were. We are a guest in a burning house."
 
