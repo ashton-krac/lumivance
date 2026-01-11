@@ -1,7 +1,7 @@
 # CHAPTER 9: THE SILENT PARADE
 
 **DATE:** July 28, 1917  
-**LOCATION:** A Hotel Suite overlooking Fifth Avenue, New York City (The Waldorf-Astoria, Room 404)  
+**LOCATION:** The Waldorf-Astoria, Suite 404  
 **TIME:** 1:00 PM  
 **PRESIDING:** Grand Architect James Weldon Johnson (The Diplomat)  
 
