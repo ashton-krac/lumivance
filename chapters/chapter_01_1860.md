@@ -87,7 +87,7 @@ DeRochenoire raised his hand. "Let it be voted. Do we accept the burden of our s
 "Aye," said Lafon.
 "Aye," said Remond.
 
-"Then it is sealed," DeRochenoire slammed the gavel. "The Civil War is coming. Lincoln will fight Davis. The North will fight the South. Let them tear each other apart. While they bleed, we will buy. While they burn cities, we will buy the ashes. And when the smoke clears, we will own the land they fought over."
+"Then it is sealed," DeRochenoire slammed the gavel. "War is coming. Lincoln will fight Davis. North against South, brother against brother. Let them tear each other apart. While they bleed, we will buy. While they burn cities, we will buy the ashes. And when the smoke clears, we will own the land they fought over."
 
 **VI. ADJOURNMENT**
 
