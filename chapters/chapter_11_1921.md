@@ -77,11 +77,15 @@ Gurley looked at Smitherman. "Bricks and mortar are replaceable. Listen, if we s
 
 "What of the people?" Dr. Jackson asked, his voice rising. "The families? The ones who aren't in the Order? The cooks, the maids, the children? Are we leaving them to be slaughtered?"
 
-"They are the shield," Gurley began explaining the arithmetic of the Third Race. "If everyone escapes, if the district is found empty, the whites will know it was a setup, that we were warned, and they will hunt us down. There must be casualties. There must be bodies. There must be images of those casualties, of those bodies, of the bodies burning, of the bodies being dragged through the streets, stripped not only of their clothes, but of their dignity, of the strange fruit hanging. It is the price of the lesson."
+"They are the shield," Gurley began explaining the arithmetic of the Third Race. "If everyone escapes, if the district is found empty, the whites will know it was a setup, that we were warned, and they will hunt us down. There must be casualties. There must be bodies. There must be images of those casualties, of those bodies, of the bodies burning, of the bodies being dragged through the streets, stripped not only of their clothes, but of their dignity, hanging like strange fruit. It is the price of the lesson."
 
 "You are a monster," Jackson said.
 
-"I am a general," Gurley countered. "We will save the 'Talented Tenth'—the doctors, the lawyers, the skilled artisans. They have already been given the warning code. They are packing their cars as we speak. The rest, well, they have guns. If they survive, they are stronger. They are forged in fire. If they fall, they are martyrs. Their blood will water the tree of liberty."
+"It is worse than that," Smitherman added, his voice shaking. "This is beyond Machiavellian. It is unprecedented. To knowingly sacrifice our own..."
+
+"Unprecedented?" Gurley cut him off. "Study your archives, A.J. The Order has done this before. New York City, 1863. The Draft Riots. We sacrificed the Five Points to secure the future of the Harlem holdings. It is a standard liquidation protocol."
+
+"I am a general," Gurley continued, turning back to Jackson. "We will save the cream of the crop—the doctors, the lawyers, the skilled artisans. They have already been given the warning code. They are packing their cars as we speak. The rest, well, they have guns. If they survive, they are stronger. They are forged in fire. If they fall, they are martyrs. Their blood will water the tree of liberty."
 
 "I will stay," Dr. Jackson said. He stood up, buttoning his coat. "I cannot leave my patients. The hospital will be a target. I must be there."
 
