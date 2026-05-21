@@ -35,6 +35,7 @@ During this era, the Order successfully monopolizes culture to fund its shadow m
 The final era chronicles the execution of the ultimate goal: capturing the American state apparatus and forcing integration on the Order's terms.
 * **Operation "Black House"**: Seeds planted in the 1950s successfully bloom with the 2008 and 2021 takeovers of the Executive Branch.
 * **Cultural Sovereignty**: "Watch the Throne" and figures like Beyoncé are deployed to consolidate the entertainment and financial wings of the Order, executing an "Architecture of Sound" and establishing the "Black Royalty" paradigm parallel to the decaying American empire.
+* **Athletic and Local Containment**: The Order learns that ungoverned political intelligence can be more dangerous than fame. Kaepernick is marked as an independent-thought risk, while Mahomes is preserved as the future marketable corrective. Nipsey Hussle becomes a parallel threat in land, technology, and neighborhood sovereignty: a builder whose public version of Lumivance doctrine risks exposing the hidden city before it is ready.
 * **The Endgame - "Total Integration"**: The Order survives the 2020 pandemic (using it to bankrupt rival factions) and prepares for the Deep State’s threat of exposure.
 * **The Climax (2025)**: The arc culminates in the groundbreaking of the "New Afri-Canaan"—the establishment of the first fully autonomous and sovereign Lumivance city-state within the borders of the decaying United States, finalizing their transition from a marginalized elite to an independent global power. 
 

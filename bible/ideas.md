@@ -46,7 +46,9 @@
 - [ ] 2008: The Obama Election—Operation "Black House" succeeds; the Executive Branch is captured.
 - [ ] 2011: The "Watch the Throne" merger—Consolidating the entertainment and financial wings of the Order.
 - [ ] 2016: *Lemonade*—Activation of the "Amazon Corps" (female tactical units).
+- [ ] 2017: The Kaepernick containment—The Order deems independent political thought more dangerous than anthem protest and uses locker-room rumor architecture to help isolate him while preparing Mahomes as the "Clean Pocket" corrective.
 - [ ] 2018: The Royal Wedding—Meghan Markle infiltrates the British Monarchy to access the Royal Archives.
+- [ ] 2019: The Marathon containment—Nipsey Hussle's local ownership model and unfinished song threaten to expose Lumivance land architecture before the Order is ready.
 - [ ] 2020: The "Pause"—Using the pandemic to reset the global financial board and bankrupt rival factions.
 - [ ] 2021: The Kamala Ascension—Phase 2 of Operation "Black House": The Succession Plan.
 - [ ] 2023: The Renaissance Tour—A global biometric harvest of attendees for the new "E-Census."
